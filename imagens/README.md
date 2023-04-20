@@ -1,0 +1,1 @@
+Imagens geradas dos arquivo
